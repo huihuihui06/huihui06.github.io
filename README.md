@@ -1,2 +1,2 @@
-# huihui06.github.io
+# huihuihui06.github.io
 杂七杂八
